@@ -143,9 +143,9 @@ Where:
 
 For queries, feel free to reach out:
 
-Developer: Basharat Ahmad Khan
+Developer: jattanvir singh bhutyal
 
-Email: khanbasharat3a1@gmail.com
+Email: 2022a1l013@mietjammu.in
 
-Phone: (+91) 8899977743
+Phone: (+91) 9622248209
 
